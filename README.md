@@ -1,16 +1,19 @@
-## Hi there 👋
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=your-github-Azresash&label=Hearts&color=9d409a&style=plastic&abbreviated=true&base=50">
+</p>
 
-<!--
-**fantzt/Fantzt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
+  </p> 
 
-Here are some ideas to get you started:
+  <p align="center">
+Hi this is a SIDE account from my main, please follow my main instead as this will spam follow-
+  </p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  <p align="center">
+I go by Rot, Scrap, Saps, or Fantst! Ne/nem prns are preferred..
+  </p>
+
+  <p align="center">
+  <img width="400" height="500" src="https://64.media.tumblr.com/e74804802852d72e76887c5ea7eea2ef/0cd5a532a47f5abc-a4/s500x750/a61324852ede9dc0ff043311b8c120c8864eac7c.jpg">
+</p>
